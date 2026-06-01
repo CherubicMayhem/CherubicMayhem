@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ. ݁₊ ⊹ . ݁˖ . ݁ wanderer of my heart.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ. ݁₊ ⊹ . ݁˖ . ݁ the kimono drapes me in elegance, framing my unhinged appetite.
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
